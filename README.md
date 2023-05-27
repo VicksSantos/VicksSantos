@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @VicksSantos
+- 🌱 I’m currently learning codes versioning and I'm using this plataform for that
